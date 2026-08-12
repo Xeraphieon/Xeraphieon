@@ -4,6 +4,6 @@
     If you had to betray one person to save a thousand, would you?
   </span>
   <br><br>
-  <span>sign my ata~ <a href="https://Xeraphieon.atabook.org">ata</a></span>
+  <span>sign my ata~ <a href="https://Xeraphieon.atabook.org">atabook</a></span>
 </p>
 <clear></clear>
