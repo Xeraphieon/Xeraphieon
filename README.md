@@ -6,5 +6,5 @@
 <img src="https://64.media.tumblr.com/02d043fbace78ea0a4dcde52be6ccf1b/6b6cef5fada6f113-e3/s2048x3072/7072f555d0f683c54bb9721861f6c02a7ea9eb59.gifv" width="400" alt="purple divider 3">
 <img src="https://64.media.tumblr.com/d6c1eeb3c26bb8a5532b6bf6691a1699/625c4b0d8862e034-d6/s2048x3072/6db606e3fa9cc683154c7e29a219c9f77ec09a1d.pnj" width="400" alt="purple h divider">
 
-  <span>sign <a href="https://Xeraphieon.atabook.org">ata</a></span>
+  <span>sign <a href="https://Xeraphieon.atabook.org">ata</a></span> <img src=" https://pixels.crd.co/assets/images/gallery20/51c0471f.gif?v=29416114" width="100" alt="bsmt">
   <img src="https://64.media.tumblr.com/1601bd5528b9d7198bc27b5688973c1f/88280e3f54890c11-19/s250x400/1fe57f9818f77e883d06f6994e2c3e082c888a03.gifv" width="150" alt="blinkie">
