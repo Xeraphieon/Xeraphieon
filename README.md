@@ -1,9 +1,3 @@
-<p>
-  <img align="left" width="150" height="150" src="https://i.pinimg.com/736x/08/ca/31/08ca3116d8c5de5c735c048e3194f1bf.jpg" style="margin-right: 15px;" />
-  <span style="color:#ABA0D9; font-size: 20px; font-weight: bold;">
-    ⠀ ⠀ ⠀ ⠀ ⠀徐福Xu Fu ⠀ 𓄋 ⠀ ⠀𝓛elouch
-  </span>
-  <br><br>
+<img src="(https://i.pinimg.com/1200x/bc/e6/4a/bce64a3372cde73d2246c50fac620802.jpg)" width="50%" alt="twink lelouch">
+
   <span>sign <a href="https://Xeraphieon.atabook.org">ata</a></span>
-</p>
-<clear></clear>
