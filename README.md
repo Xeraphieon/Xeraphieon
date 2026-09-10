@@ -9,3 +9,5 @@
   <img src="https://pixels.crd.co/assets/images/gallery12/7641d753.gif?v=29416114" width="18" alt="bsmt">  <a href="https://Xeraphieon.atabook.org">ata</a> 
 
   <img src="https://64.media.tumblr.com/1601bd5528b9d7198bc27b5688973c1f/88280e3f54890c11-19/s250x400/1fe57f9818f77e883d06f6994e2c3e082c888a03.gifv" width="150" alt="blinkie">
+
+<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e802669b-d870-4707-89df-3e8a6a8b5456/dkkaeff-9de1c66a-12dc-450d-9aeb-7ae48b557812.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9lODAyNjY5Yi1kODcwLTQ3MDctODlkZi0zZThhNmE4YjU0NTYvZGtrYWVmZi05ZGUxYzY2YS0xMmRjLTQ1MGQtOWFlYi03YWU0OGI1NTc4MTIuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.MM1Oyxk2W5936XDAUUazXInphzlSn64gZDEeKxBtaeg" width="150" alt="blinkie2">
