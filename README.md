@@ -7,4 +7,4 @@
 <img src="https://64.media.tumblr.com/d6c1eeb3c26bb8a5532b6bf6691a1699/625c4b0d8862e034-d6/s2048x3072/6db606e3fa9cc683154c7e29a219c9f77ec09a1d.pnj" width="400" alt="purple h divider">
 
   <span>sign <a href="https://Xeraphieon.atabook.org">ata</a></span>
-  <img src="https://64.media.tumblr.com/1601bd5528b9d7198bc27b5688973c1f/88280e3f54890c11-19/s250x400/1fe57f9818f77e883d06f6994e2c3e082c888a03.gifv" width="50" alt="blinkie">
+  <img src="https://64.media.tumblr.com/1601bd5528b9d7198bc27b5688973c1f/88280e3f54890c11-19/s250x400/1fe57f9818f77e883d06f6994e2c3e082c888a03.gifv" width="150" alt="blinkie">
