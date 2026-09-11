@@ -4,6 +4,9 @@
 <p align="center">
 <img src="https://64.media.tumblr.com/d6c1eeb3c26bb8a5532b6bf6691a1699/625c4b0d8862e034-d6/s2048x3072/6db606e3fa9cc683154c7e29a219c9f77ec09a1d.pnj" width="400" alt="purplez divider">
 </p>
+<p align="center'>
+<img src="https://64.media.tumblr.com/ab55f280e762b9b1e8037e492924db67/625c4b0d8862e034-f1/s2048x3072/7d7b51ed21707cfa1065e82abb9d2dd2bf0c5b25.pnj" width="400" alt="purplezs divider">
+</p>
 <p align="center">
 <img src="https://64.media.tumblr.com/02d043fbace78ea0a4dcde52be6ccf1b/6b6cef5fada6f113-e3/s2048x3072/7072f555d0f683c54bb9721861f6c02a7ea9eb59.gifv" width="400" alt="purple divider 2">
 </p>
