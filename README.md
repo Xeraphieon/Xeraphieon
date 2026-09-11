@@ -35,8 +35,5 @@
 <img src="https://64.media.tumblr.com/d6c1eeb3c26bb8a5532b6bf6691a1699/625c4b0d8862e034-d6/s2048x3072/6db606e3fa9cc683154c7e29a219c9f77ec09a1d.pnj" width="400" alt="purplez34 divider">
 </p>
 <p align="center">
-<img src="https://64.media.tumblr.com/988bc88ebedca16283a59d10114559df/c77a857982cff2b5-ff/s1280x1920/6f9722fa3004977da8c3dba82095bcc9c50d8981.pnj" width="400" alt="purple purple divider">
-</p>
-<p align="center">
 <img src="https://64.media.tumblr.com/14a60e42aba2a8d8a6ed8c238365d2dc/6b6cef5fada6f113-1d/s2048x3072/40471953107773a44478d5a9bd61eaa7f095796c.gifv" width="400" alt="purple flower divider">
 </p>
