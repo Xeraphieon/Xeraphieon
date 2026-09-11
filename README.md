@@ -1,23 +1,23 @@
 <p align="center">
-<img src="https://64.media.tumblr.com/02ee20f4faa07c9f79feb872f0612765/6b6cef5fada6f113-01/s2048x3072/4ac5a596529c6c264e435c9a963a1d47cf96133a.pnj" width="450" alt="purple divider">
+<img src="https://64.media.tumblr.com/02ee20f4faa07c9f79feb872f0612765/6b6cef5fada6f113-01/s2048x3072/4ac5a596529c6c264e435c9a963a1d47cf96133a.pnj" width="500" alt="purple divider">
 </p>
 <p align="center">
-<img src="https://64.media.tumblr.com/d6c1eeb3c26bb8a5532b6bf6691a1699/625c4b0d8862e034-d6/s2048x3072/6db606e3fa9cc683154c7e29a219c9f77ec09a1d.pnj" width="450" alt="purplez divider">
+<img src="https://64.media.tumblr.com/d6c1eeb3c26bb8a5532b6bf6691a1699/625c4b0d8862e034-d6/s2048x3072/6db606e3fa9cc683154c7e29a219c9f77ec09a1d.pnj" width="500" alt="purplez divider">
 </p>
 <p align="center">
-<img src="https://64.media.tumblr.com/02d043fbace78ea0a4dcde52be6ccf1b/6b6cef5fada6f113-e3/s2048x3072/7072f555d0f683c54bb9721861f6c02a7ea9eb59.gifv" width="450" alt="purple divider 2">
+<img src="https://64.media.tumblr.com/02d043fbace78ea0a4dcde52be6ccf1b/6b6cef5fada6f113-e3/s2048x3072/7072f555d0f683c54bb9721861f6c02a7ea9eb59.gifv" width="500" alt="purple divider 2">
 </p>
 <p align="center">
 <img src="https://i.pinimg.com/1200x/bc/e6/4a/bce64a3372cde73d2246c50fac620802.jpg" width="400" alt="twink lelouch">
 </p>
 <p align="center">
-<img src="https://64.media.tumblr.com/02d043fbace78ea0a4dcde52be6ccf1b/6b6cef5fada6f113-e3/s2048x3072/7072f555d0f683c54bb9721861f6c02a7ea9eb59.gifv" width="450" alt="purple divider 3">
+<img src="https://64.media.tumblr.com/02d043fbace78ea0a4dcde52be6ccf1b/6b6cef5fada6f113-e3/s2048x3072/7072f555d0f683c54bb9721861f6c02a7ea9eb59.gifv" width="500" alt="purple divider 3">
 </p>
 <p align="center">
-<img src="https://64.media.tumblr.com/d6c1eeb3c26bb8a5532b6bf6691a1699/625c4b0d8862e034-d6/s2048x3072/6db606e3fa9cc683154c7e29a219c9f77ec09a1d.pnj" width="450" alt="purple h divider">
+<img src="https://64.media.tumblr.com/d6c1eeb3c26bb8a5532b6bf6691a1699/625c4b0d8862e034-d6/s2048x3072/6db606e3fa9cc683154c7e29a219c9f77ec09a1d.pnj" width="500" alt="purple h divider">
 </p>
 <p align="center">
-<img src="https://64.media.tumblr.com/02d043fbace78ea0a4dcde52be6ccf1b/6b6cef5fada6f113-e3/s2048x3072/7072f555d0f683c54bb9721861f6c02a7ea9eb59.gifv" width="450" alt="purple divider 12">
+<img src="https://64.media.tumblr.com/02d043fbace78ea0a4dcde52be6ccf1b/6b6cef5fada6f113-e3/s2048x3072/7072f555d0f683c54bb9721861f6c02a7ea9eb59.gifv" width="500" alt="purple divider 12">
 </p>
 <p align="center">
  <a href="https://Xeraphieon.atabook.org">ata</a>  ⠀ ⠀  <img src="https://pixels.crd.co/assets/images/gallery12/7641d753.gif?v=29416114" width="18" alt="bsmt">  ⠀ ⠀  strawpg wip
@@ -29,11 +29,11 @@
 <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e802669b-d870-4707-89df-3e8a6a8b5456/dkkaeff-9de1c66a-12dc-450d-9aeb-7ae48b557812.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9lODAyNjY5Yi1kODcwLTQ3MDctODlkZi0zZThhNmE4YjU0NTYvZGtrYWVmZi05ZGUxYzY2YS0xMmRjLTQ1MGQtOWFlYi03YWU0OGI1NTc4MTIuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.MM1Oyxk2W5936XDAUUazXInphzlSn64gZDEeKxBtaeg" width="150" alt="blinkie2">
 </p>
 <p align="center">
-<img src="https://64.media.tumblr.com/02d043fbace78ea0a4dcde52be6ccf1b/6b6cef5fada6f113-e3/s2048x3072/7072f555d0f683c54bb9721861f6c02a7ea9eb59.gifv" width="450" alt="purple divider 12">
+<img src="https://64.media.tumblr.com/02d043fbace78ea0a4dcde52be6ccf1b/6b6cef5fada6f113-e3/s2048x3072/7072f555d0f683c54bb9721861f6c02a7ea9eb59.gifv" width="500" alt="purple divider 12">
 </p>
 <p align="center">
-<img src="https://64.media.tumblr.com/d6c1eeb3c26bb8a5532b6bf6691a1699/625c4b0d8862e034-d6/s2048x3072/6db606e3fa9cc683154c7e29a219c9f77ec09a1d.pnj" width="450" alt="purplez34 divider">
+<img src="https://64.media.tumblr.com/d6c1eeb3c26bb8a5532b6bf6691a1699/625c4b0d8862e034-d6/s2048x3072/6db606e3fa9cc683154c7e29a219c9f77ec09a1d.pnj" width="500" alt="purplez34 divider">
 </p>
 <p align="center">
-<img src="https://64.media.tumblr.com/14a60e42aba2a8d8a6ed8c238365d2dc/6b6cef5fada6f113-1d/s2048x3072/40471953107773a44478d5a9bd61eaa7f095796c.gifv" width="450" alt="purple flower divider">
+<img src="https://64.media.tumblr.com/14a60e42aba2a8d8a6ed8c238365d2dc/6b6cef5fada6f113-1d/s2048x3072/40471953107773a44478d5a9bd61eaa7f095796c.gifv" width="500" alt="purple flower divider">
 </p>
