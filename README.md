@@ -29,5 +29,8 @@
 <img src="https://64.media.tumblr.com/02d043fbace78ea0a4dcde52be6ccf1b/6b6cef5fada6f113-e3/s2048x3072/7072f555d0f683c54bb9721861f6c02a7ea9eb59.gifv" width="400" alt="purple divider 12">
 </p>
 <p align="center">
+<img src="https://64.media.tumblr.com/d6c1eeb3c26bb8a5532b6bf6691a1699/625c4b0d8862e034-d6/s2048x3072/6db606e3fa9cc683154c7e29a219c9f77ec09a1d.pnj" width="400" alt="purplez34 divider">
+</p>
+<p align="center">
 <img src="https://64.media.tumblr.com/988bc88ebedca16283a59d10114559df/c77a857982cff2b5-ff/s1280x1920/6f9722fa3004977da8c3dba82095bcc9c50d8981.pnj" width="400" alt="purple purple divider">
 </p>
