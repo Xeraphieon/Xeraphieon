@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://64.media.tumblr.com/02ee20f4faa07c9f79feb872f0612765/6b6cef5fada6f113-01/s2048x3072/4ac5a596529c6c264e435c9a963a1d47cf96133a.pnj" width="500" alt="purple divider">
+<img src="https://64.media.tumblr.com/02ee20f4faa07c9f79feb872f0612765/6b6cef5fada6f113-01/s2048x3072/4ac5a596529c6c264e435c9a963a1d47cf96133a.pnj" width="700" alt="purple divider">
 </p>
 <p align="center">
 <img src="https://64.media.tumblr.com/d6c1eeb3c26bb8a5532b6bf6691a1699/625c4b0d8862e034-d6/s2048x3072/6db606e3fa9cc683154c7e29a219c9f77ec09a1d.pnj" width="500" alt="purplez divider">
@@ -35,5 +35,5 @@
 <img src="https://64.media.tumblr.com/d6c1eeb3c26bb8a5532b6bf6691a1699/625c4b0d8862e034-d6/s2048x3072/6db606e3fa9cc683154c7e29a219c9f77ec09a1d.pnj" width="500" alt="purplez34 divider">
 </p>
 <p align="center">
-<img src="https://64.media.tumblr.com/14a60e42aba2a8d8a6ed8c238365d2dc/6b6cef5fada6f113-1d/s2048x3072/40471953107773a44478d5a9bd61eaa7f095796c.gifv" width="500" alt="purple flower divider">
+<img src="https://64.media.tumblr.com/14a60e42aba2a8d8a6ed8c238365d2dc/6b6cef5fada6f113-1d/s2048x3072/40471953107773a44478d5a9bd61eaa7f095796c.gifv" width="700" alt="purple flower divider">
 </p>
