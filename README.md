@@ -20,7 +20,7 @@
 <img src="https://64.media.tumblr.com/02d043fbace78ea0a4dcde52be6ccf1b/6b6cef5fada6f113-e3/s2048x3072/7072f555d0f683c54bb9721861f6c02a7ea9eb59.gifv" width="400" alt="purple divider 12">
 </p>
 <p align="center">
- <a href="https://Xeraphieon.atabook.org">ata</a>  ⠀ ⠀  <img src="https://pixels.crd.co/assets/images/gallery12/7641d753.gif?v=29416114" width="18" alt="bsmt">  ⠀ ⠀    <a href="xeraphieon.carrd.co">carrd</a> 
+ <a href="https://Xeraphieon.atabook.org">ata</a>  ⠀ ⠀  <img src="https://pixels.crd.co/assets/images/gallery12/7641d753.gif?v=29416114" width="18" alt="bsmt">  ⠀ ⠀    <a href="[xeraphieon.carrd.co](https://xeraphieon.carrd.co/)">carrd</a> 
 </p>
 <p align="center">
   <img src="https://64.media.tumblr.com/1601bd5528b9d7198bc27b5688973c1f/88280e3f54890c11-19/s250x400/1fe57f9818f77e883d06f6994e2c3e082c888a03.gifv" width="150" alt="blinkie">
